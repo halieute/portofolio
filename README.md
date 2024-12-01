@@ -4,7 +4,7 @@
 
 A dedicated and highly skilled Fisheries and Aquaculture Specialist with over 2 years of experience in fisheries management, aquaculture practices, and environmental assessment. Expertise in sustainable resource management, marine biology, and ecological impact studies. Proven ability to conduct comprehensive environmental assessments and develop strategic plans to enhance aquaculture production while ensuring ecological balance.
 
-[📄 Download Resume](resume.pdf)
+[📄 Download Resume](assets/CV.pdf)
 
 ---
 
