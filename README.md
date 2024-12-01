@@ -10,7 +10,7 @@ A dedicated and highly skilled Fisheries and Aquaculture Specialist with over 2 
 
 ## Contact Information
 - 📧 **Email**: souleymanemannourisouley1995@gmail.com  
-- 🔗 **Links**: [YouTube](#) | [LinkedIn](www.linkedin.com/in/souleymanemamannourisouley) | [GitHub](https://github.com/halieute) | [Twitter](https://x.com/NouriSoule22856?t=4zDyk1SPtPulr55QZVjeXw&s=09)
+- 🔗 **Links**: [YouTube](#) | [LinkedIn](www.linkedin.com/in/souleymanemamannou) | [GitHub](https://github.com/halieute) | [Twitter](https://x.com/NouriSoule22856?t=4zDyk1SPtPulr55QZVjeXw&s=09)
 
 ---
 
