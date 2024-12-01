@@ -1,4 +1,4 @@
-![Profile Picture](profile_picture.jpg)
+![Profile Picture]assets/profile_picture.jpg)
 
 # Souleymane Maman Nouri Souley
 
